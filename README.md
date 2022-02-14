@@ -10,9 +10,9 @@ https://discord.gg/xXkDRH44Ha
 
 **DON'T SHARE THIS SCRIPT WITHOUT CREDITS AND MAKE YT VIDEO ALSO IF YOU YOU MAKE IT WILL LEAD TO COPYRIGHT MY TEAM WILL MAX TRY TO MAKE THAT CHANNEL DOWN**
 
-**
 
-|-----------------------------------------|
+
+**|-----------------------------------------|
 
   * @INFO
 
