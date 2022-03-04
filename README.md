@@ -12,22 +12,22 @@ https://discord.gg/xXkDRH44Ha
 
 
 
-|-----------------------------------------|
+-----------------------------------------
 
-  * @INFO
+  * **INFO**
 
-  * SCRIPT MADE BY V H#5111 | https://github.com/VH5111
+  * **SCRIPT MADE BY V H#5111** | https://github.com/VH5111
 
-  * @INFO
+  * **INFO**
 
-  * Work for DEVELOPER'S CAFE | https://discord.gg/xXkDRH44Ha
+  * **Work for DEVELOPER'S CAFE | https://discord.gg/xXkDRH44Ha**
 
-  * @INFO
+  * **INFO**
 
-  * Please mention Him / DEVELOPER'S CAFE, when using this Code!
+  * **Please mention Him / DEVELOPER'S CAFE, when using this Code!**
 
-  * @INFO
+  * **INFO**
 
-|-----------------------------------------|
+-----------------------------------------
 
 
