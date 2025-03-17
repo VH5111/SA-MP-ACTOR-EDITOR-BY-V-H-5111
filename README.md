@@ -8,7 +8,7 @@
 
 **JOIN OUR SERVER FOR BEST BOT CODES FOR FREE AND SA-MP PRODUCTS FOR FREE**
 
-https://discord.gg/xXkDRH44Ha
+https://dsc.gg/dcafe
 
 **DON'T SHARE THIS SCRIPT WITHOUT CREDITS AND MAKE YT VIDEO ALSO IF YOU YOU MAKE IT WILL LEAD TO COPYRIGHT MY TEAM WILL MAX TRY TO MAKE THAT CHANNEL DOWN**
 
@@ -22,7 +22,7 @@ https://discord.gg/xXkDRH44Ha
 
   * **INFO**
 
-  * **Work for DEVELOPER'S CAFE | https://discord.gg/xXkDRH44Ha**
+  * **Work for DEVELOPER'S CAFE | https://dsc.gg/dcafe**
 
   * **INFO**
 
